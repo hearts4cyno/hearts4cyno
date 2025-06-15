@@ -9,7 +9,7 @@ call me meg or megan, 6teen, lesbian, autistic, 28/04
 
 im very introverted, but i love making new friends so feel free to talk to me!! i might be akward or quiet at first tho
 
-i love music and n25 from pjsk and scara, navia and ganyu!! stan twice/TVGirl/the smiths and girl in red !!
+cynari/kazuscara/clorivia my loves
 
 sign my atabook/strawpage !!
 
