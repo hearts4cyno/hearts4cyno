@@ -1,6 +1,6 @@
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ [𐔌 ࣭  "Ma Chérie, are you missin' me?" ࣭ ꒱](https://www.youtube.com/watch?v=MQMSPFsdna4)
 
-![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/520452786_1104913871518381_2968886006752981703_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Pg11EBxYMXoQ7kNvwFw-JVN&_nc_oc=Admj3C4W4G37kOiD0u_BQarTk2yrjw8WFr2LvsMR0nkU9P1a0VvUtWInX50yQ19huRbKkpPIz6J6L0UYAmJ6FxQW&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wEwRomIIRQVDegyixs0g_S2LK1FYFVHaoJYEYwoKHRsWg&oe=68A72BE8)
+![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521753898_1447016496715785_4612995633232334140_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=mqY6LgJO0MgQ7kNvwGXlNEw&_nc_oc=Adkh4CSiRvBScLIhZL4lGFahW6FnLt2RWMmQvKPr4Phwtk1fjnSEQ9_NuijSg6tMvce4gvG6KQIgWAFp0_R0XLg4&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFjs9mw0Z7snCuScIpDlf5gho6h4eMzUgVRz9cIZCP29g&oe=68A72805)
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎‎‎ ‎ ‎   ‎ ‎‎‎ ‎ ‎‎[strawpage](https://pixelatedshark.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/navisun)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
 
@@ -13,7 +13,7 @@ cynari/kazuscara/clorivia my loves
 
 sign my atabook/strawpage !!
 
-![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521753898_1447016496715785_4612995633232334140_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=mqY6LgJO0MgQ7kNvwGXlNEw&_nc_oc=Adkh4CSiRvBScLIhZL4lGFahW6FnLt2RWMmQvKPr4Phwtk1fjnSEQ9_NuijSg6tMvce4gvG6KQIgWAFp0_R0XLg4&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFjs9mw0Z7snCuScIpDlf5gho6h4eMzUgVRz9cIZCP29g&oe=68A72805)
+![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521714032_2702033196667365_4094885046091334708_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Pl0qAayT5-wQ7kNvwGepjVG&_nc_oc=Adkqg6bNWHhXpWZ2rIzEQJWAiiwp43wYbz7ydZT9FPZOByo0rF_KeMQkgmvE0nhHA65kgrFePCOINXzwMlJzElCx&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFZRcNBuWUsHQVCGpPzAkeZEojfDp2-nqMXzVAXjIcELg&oe=68A701B6)
 
 # dni :
 basic dni criteria , homophobia , transphobia ,
@@ -27,4 +27,4 @@ do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta ,
 
 do not copy and/or inspire from my skins on pt
 
-  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521714032_2702033196667365_4094885046091334708_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Pl0qAayT5-wQ7kNvwGepjVG&_nc_oc=Adkqg6bNWHhXpWZ2rIzEQJWAiiwp43wYbz7ydZT9FPZOByo0rF_KeMQkgmvE0nhHA65kgrFePCOINXzwMlJzElCx&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFZRcNBuWUsHQVCGpPzAkeZEojfDp2-nqMXzVAXjIcELg&oe=68A701B6)
+  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/520209659_24385942301090204_4421625928691248731_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=0024fc&_nc_ohc=YJb2MauQ4agQ7kNvwEOzAZX&_nc_oc=AdlyEGs9JEAzaxDiQ--8iIrCMUziyXy7jgMwYr_vZ6jv35Wh2kbea2XA78GhofnJb_S3zV47nK4q61EJtPy-pkAo&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wG8Hl0DRPcoLI_BgR9O5tDzLSsEIpFfToY8NeoUJNh6yg&oe=68A70A04)
