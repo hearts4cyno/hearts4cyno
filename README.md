@@ -11,6 +11,7 @@ im very introverted, but i love making new friends so feel free to talk to me!! 
 
 cynari/kazuscara/clorivia my loves
 
+matching with @OnlySyluss as our fav fatui harbingers
 sign my atabook/strawpage !!
 
 ![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521714032_2702033196667365_4094885046091334708_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Pl0qAayT5-wQ7kNvwGepjVG&_nc_oc=Adkqg6bNWHhXpWZ2rIzEQJWAiiwp43wYbz7ydZT9FPZOByo0rF_KeMQkgmvE0nhHA65kgrFePCOINXzwMlJzElCx&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFZRcNBuWUsHQVCGpPzAkeZEojfDp2-nqMXzVAXjIcELg&oe=68A701B6)
