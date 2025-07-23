@@ -2,7 +2,7 @@
 
 ![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521753898_1447016496715785_4612995633232334140_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=mqY6LgJO0MgQ7kNvwGXlNEw&_nc_oc=Adkh4CSiRvBScLIhZL4lGFahW6FnLt2RWMmQvKPr4Phwtk1fjnSEQ9_NuijSg6tMvce4gvG6KQIgWAFp0_R0XLg4&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFjs9mw0Z7snCuScIpDlf5gho6h4eMzUgVRz9cIZCP29g&oe=68A72805)
 
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎‎‎ ‎ ‎   ‎ ‎‎‎ ‎ ‎‎[strawpage](https://pixelatedshark.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/navisun)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎‎‎ ‎ ‎   ‎ ‎‎‎ ‎ ‎‎[strawpage](https://etherealbina.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/navisun)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
 
 # about me :
 call me meg or megan, 6teen, lesbian, autistic, 28/04
