@@ -20,7 +20,7 @@ sign my atabook/strawpage !!
 # dni :
 basic dni criteria , homophobia , transphobia ,
 
-non-sharing self shippers, scaradurin/dottoscara/dottocollei/kazuha x beidou , shippers, arlefuri/neuvifuri or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
+non-sharing self shippers, scaradurin/dottoscara/dottocollei/kazuha x beidou & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
 zoophiles , pro/com shippers , ppl who think mizuki is a boy ,
 THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fictonial one)
