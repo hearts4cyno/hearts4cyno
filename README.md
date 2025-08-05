@@ -20,7 +20,7 @@ sign my atabook/strawpage !!
 # dni :
 basic dni criteria , homophobia , transphobia ,
 
-non-sharing self shippers, toxic shippers, scaradurin/dottoscara/dottocollei/kaeluc/kazuha x beidou & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
+non-sharing self shippers, toxic shippers, scaradurin/dottoscara/dottocollei/kaeluc/beikazu/tighlei (tighnari x collei, seriously why does this ship exist) & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
 zoophiles , pro/com shippers , ppl who think mizuki akiyama is a boy ,
 THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fictonial one)
