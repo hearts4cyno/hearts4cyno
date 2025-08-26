@@ -1,6 +1,6 @@
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ["In the water, the future mirrors the past .."](https://www.youtube.com/watch?v=I8BTGZGlSpM&list=RDI8BTGZGlSpM&start_radio=1)
 
-![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521753898_1447016496715785_4612995633232334140_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=mqY6LgJO0MgQ7kNvwGXlNEw&_nc_oc=Adkh4CSiRvBScLIhZL4lGFahW6FnLt2RWMmQvKPr4Phwtk1fjnSEQ9_NuijSg6tMvce4gvG6KQIgWAFp0_R0XLg4&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFjs9mw0Z7snCuScIpDlf5gho6h4eMzUgVRz9cIZCP29g&oe=68A72805)
+![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/538387992_2288378304916592_1717573638847337445_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=0024fc&_nc_ohc=GPIG1E6LWvYQ7kNvwHp8qu1&_nc_oc=AdmAPkoNIfozd-_qtH-HQaawJQbW1xaYwafUweG-bB1uv5-ghdOAeSGybY2u88aHdpcTN3e2ZfjRKnNy2cl8HpiR&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD3AFEjlQouj_kj6zIbykUtXsxs6D8xnjIkoJDAPp-vm45Ww&oe=68D5244E)
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎‎‎ ‎ ‎   ‎ ‎‎‎ ‎ ‎‎[strawpage](https://etherealbina.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/etherealbina)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
 
@@ -15,7 +15,7 @@ matching with @capitanobsessed as our fav fatui harbingers
 
 sign my atabook/strawpage !!
 
-![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/521714032_2702033196667365_4094885046091334708_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Pl0qAayT5-wQ7kNvwGepjVG&_nc_oc=Adkqg6bNWHhXpWZ2rIzEQJWAiiwp43wYbz7ydZT9FPZOByo0rF_KeMQkgmvE0nhHA65kgrFePCOINXzwMlJzElCx&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wFZRcNBuWUsHQVCGpPzAkeZEojfDp2-nqMXzVAXjIcELg&oe=68A701B6)
+![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/539767469_1289948819494052_7419465849632977366_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=0024fc&_nc_ohc=2MduC8bTsBkQ7kNvwEK_Kkt&_nc_oc=AdmWg-NdD5eSuWPDiH4OiH66corzdQddobNBwKzYHc2XEs9HFRHepbXKKWJxZyEXf_QIFI0Pt6hvc8urLg5JvO5n&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD3AFTEF2GXuWnuDubn2EWJxb7y5cv0ei6vfanMoD-JyDnjQ&oe=68D552D3)
 
 # dni :
 basic dni criteria , homophobia , transphobia ,
@@ -28,4 +28,4 @@ weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention see
 
 do not copy and/or inspire from my skins on pt
 
-  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/520209659_24385942301090204_4421625928691248731_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=0024fc&_nc_ohc=YJb2MauQ4agQ7kNvwEOzAZX&_nc_oc=AdlyEGs9JEAzaxDiQ--8iIrCMUziyXy7jgMwYr_vZ6jv35Wh2kbea2XA78GhofnJb_S3zV47nK4q61EJtPy-pkAo&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD2wG8Hl0DRPcoLI_BgR9O5tDzLSsEIpFfToY8NeoUJNh6yg&oe=68A70A04)
+  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://scontent-dub4-1.cdninstagram.com/v/t1.15752-9/538245937_666500756436824_5002076822313694_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=0024fc&_nc_ohc=5kMx_MAIhvsQ7kNvwGjxDGc&_nc_oc=Adn2eBULduCjWKN7pFbpuB-UEk1uleuJXhSG1R0_sczRlSPIfK_U98H8qvB-jQLYNklhw7e3l3zOlKDWLxw0tHT-&_nc_zt=23&_nc_ht=scontent-dub4-1.cdninstagram.com&oh=03_Q7cD3AGaLMoMuApg6NVfsSQFP8ZY46tRYhzz3_yYeGVWDX5ujA&oe=68D5356C)
