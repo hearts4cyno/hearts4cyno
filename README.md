@@ -11,7 +11,7 @@ im very introverted, but i love making new friends so feel free to talk to me!! 
 
 haikaveh/cynari/kazuscara/clorivia/pixelshark my loves <3 (ps. kazuscara, clorivia and pixelshark are so misunderstood omg
 
-matching with @capitanobsessed as our fav fatui harbingers
+matching with @capitanobsessed
 
 sign my atabook/strawpage !!
 
