@@ -28,4 +28,4 @@ weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention see
 
 do not copy and/or inspire from my skins on pt
 
-  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://scontent-dub4-1.cdninstagram.com/v/t1.15752-9/538245937_666500756436824_5002076822313694_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=0024fc&_nc_ohc=5kMx_MAIhvsQ7kNvwGjxDGc&_nc_oc=Adn2eBULduCjWKN7pFbpuB-UEk1uleuJXhSG1R0_sczRlSPIfK_U98H8qvB-jQLYNklhw7e3l3zOlKDWLxw0tHT-&_nc_zt=23&_nc_ht=scontent-dub4-1.cdninstagram.com&oh=03_Q7cD3AGaLMoMuApg6NVfsSQFP8ZY46tRYhzz3_yYeGVWDX5ujA&oe=68D5356C)
+  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎![Alt Text](https://cdn.discordapp.com/attachments/1214316284410470501/1433534745521946734/Untitled95_20251030191309.png?ex=69050ac5&is=6903b945&hm=745ea9df81b81049839908924fb356a6e94610fd02381c7ccdb8575ffee98b27&)
