@@ -15,7 +15,7 @@ matching with @capitanobsessed
 
 sign my atabook/strawpage !!
 
-![Alt Text](https://scontent-dub4-1.xx.fbcdn.net/v/t1.15752-9/539767469_1289948819494052_7419465849632977366_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=0024fc&_nc_ohc=2MduC8bTsBkQ7kNvwEK_Kkt&_nc_oc=AdmWg-NdD5eSuWPDiH4OiH66corzdQddobNBwKzYHc2XEs9HFRHepbXKKWJxZyEXf_QIFI0Pt6hvc8urLg5JvO5n&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-dub4-1.xx&oh=03_Q7cD3AFTEF2GXuWnuDubn2EWJxb7y5cv0ei6vfanMoD-JyDnjQ&oe=68D552D3)
+![Alt Text](https://cdn.discordapp.com/attachments/1214316284410470501/1433534739725418496/Untitled95_20251030191306.png?ex=69050ac3&is=6903b943&hm=8e5584a54268d296c6be294737f0505fe3f3af59a37d6d21f0c9384f1a47df25&)
 
 # dni :
 basic dni criteria , homophobia , transphobia ,
