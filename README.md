@@ -1,4 +1,6 @@
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ "My god, my universe .."
+<p align="center">
+"My god, my universe .."
+</p>
 
 [![7EB239F2-66F4-445D-9E71-B0987998AF7F.jpg](https://i.postimg.cc/zBsXJL2K/7EB239F2-66F4-445D-9E71-B0987998AF7F.jpg)](https://postimg.cc/5YmMgtV2)
 
