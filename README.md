@@ -34,7 +34,7 @@ but i have been harassed by non sharers in the past so id just rather not intera
 albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
 or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
-THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial ones)
+THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial ones),
 weird dandy world fans, pick me's, attention seekers
 
 do not copy and/or inspire from my skins on pt
