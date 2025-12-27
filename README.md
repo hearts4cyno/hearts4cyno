@@ -23,10 +23,16 @@ sign my atabook/strawpage !!
 # dni :
 basic dni criteria , homophobia , transphobia ,
 
-non-sharing self shippers, toxic shippers
-albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
+non-sharing self/yume shippers; 
+i have good reasoning for this and i know not all ns yumes are like this but i have been harassed by non sharers in the past so id just rather not interact with them.
+
+toxic shippers
+
+albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
+or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
 zoophiles, pro/com shippers, ppl who think mizuki akiyama is a boy
+
 THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial one)
 weird dandy world fans (esp if u simp 4 any of them), pick me's, attention seekers, racists, proshippers, pdf files, rcta/dcta, etc
 
