@@ -24,7 +24,6 @@ sign my atabook/strawpage !!
 basic dni criteria , homophobia , transphobia ,
 
 non-sharing self/yume shippers;
-
 i have good reasoning for this and i know not all ns yumes are like this
 but i have been harassed by non sharers in the past so id just rather not interact with them.
 
