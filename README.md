@@ -23,11 +23,12 @@ sign my atabook/strawpage !!
 # dni :
 basic dni criteria , homophobia , transphobia ,
 
-non-sharing self shippers, toxic shippers, scaradurin/dottoscara/dottocollei/kaeluc/beikazu/tighlei (tighnari x collei) & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
+non-sharing self shippers, toxic shippers
+albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
-zoophiles , pro/com shippers , ppl who think mizuki akiyama is a boy ,
-THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fictonial one)
-weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers , racists , proshippers , pdf files , rcta , dcta , etc
+zoophiles, pro/com shippers, ppl who think mizuki akiyama is a boy
+THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial one)
+weird dandy world fans (esp if u simp 4 any of them), pick me's, attention seekers, racists, proshippers, pdf files, rcta/dcta, etc
 
 do not copy and/or inspire from my skins on pt
 
