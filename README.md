@@ -21,21 +21,21 @@ sign my atabook/strawpage !!
 [![2023A606-02D9-498F-8307-2D029DBD9430.jpg](https://i.postimg.cc/kGC31Why/2023A606-02D9-498F-8307-2D029DBD9430.jpg)](https://postimg.cc/9RLnzw24)
 
 # dni :
-basic dni criteria , homophobia , transphobia ,
+basic dni criteria , homophobia , transphobia, racists, proshippers, pdf files, rcta/dcta, etc
+
+
+zoophiles, pro/com shippers, toxic shippers, ppl who think mizuki akiyama is a boy
 
 non-sharing self/yume shippers;
-i have good reasoning for this and i know not all ns yumes are like this
-but i have been harassed by non sharers in the past so id just rather not interact with them.
 
-toxic shippers
+-- i have good reasoning for this and i know not all ns yumes are like this
+but i have been harassed by non sharers in the past so id just rather not interact with them.
 
 albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
 or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
-zoophiles, pro/com shippers, ppl who think mizuki akiyama is a boy
-
-THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial one)
-weird dandy world fans (esp if u simp 4 any of them), pick me's, attention seekers, racists, proshippers, pdf files, rcta/dcta, etc
+THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial ones)
+weird dandy world fans, pick me's, attention seekers
 
 do not copy and/or inspire from my skins on pt
 
