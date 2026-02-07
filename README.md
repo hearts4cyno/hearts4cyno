@@ -29,7 +29,7 @@ zoophiles, pro/com shippers, toxic shippers, ppl who think mizuki akiyama is a b
 non-sharing self/yume shippers;
 
 -- i have good reasoning for this and i know not all ns yumes are like this
-but i have been harassed by non sharers in the past so id just rather not interact with them.
+but i have been attacked by non sharers in the past so id just rather not interact with them.
 
 albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
 or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
