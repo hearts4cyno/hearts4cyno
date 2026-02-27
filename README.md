@@ -2,8 +2,7 @@
 "My god, my universe .."
 </p>
 
-[![7EB239F2-66F4-445D-9E71-B0987998AF7F.jpg](https://i.postimg.cc/zBsXJL2K/7EB239F2-66F4-445D-9E71-B0987998AF7F.jpg)](https://postimg.cc/5YmMgtV2)
-
+[![IMG-6375.jpg](https://i.postimg.cc/j55xZpyb/IMG-6375.jpg)](https://postimg.cc/06T1NHtW)
  ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎‎‎ ‎ ‎‎[strawpage](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/etherealbina)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
 
 
@@ -18,7 +17,7 @@ matching with @pistachxo
 
 sign my atabook/strawpage !!
 
-[![2023A606-02D9-498F-8307-2D029DBD9430.jpg](https://i.postimg.cc/kGC31Why/2023A606-02D9-498F-8307-2D029DBD9430.jpg)](https://postimg.cc/9RLnzw24)
+[![IMG-0299.jpg](https://i.postimg.cc/NM9MghF6/IMG-0299.jpg)](https://postimg.cc/N9tY4z1F)
 
 # dni :
 basic dni criteria , homophobia , transphobia, racists, proshippers, pdf files, rcta/dcta, etc
@@ -34,4 +33,4 @@ weird dandy world fans, pick me's, attention seekers
 
 do not copy and/or inspire from my skins on pt
 
-  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎  ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎‎ ‎ ‎ ‎‎ ‎[![E0CD7655-41AC-41DC-9B65-54317D9A5D80.jpg](https://i.postimg.cc/j2tmQtLX/E0CD7655-41AC-41DC-9B65-54317D9A5D80.jpg)](https://postimg.cc/vg20GR7g)
+[![IMG-6372.jpg](https://i.postimg.cc/Zq0Yck8T/IMG-6372.jpg)](https://postimg.cc/SXFpSv15)
