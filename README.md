@@ -21,11 +21,13 @@ basic dni criteria , homophobia , transphobia, racists, proshippers, pdf files, 
 
 zoophiles, pro/com shippers, toxic shippers/yumeshippers, ppl who think mizuki akiyama is a boy
 
-albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
-or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
-
 THOSE hh/hb gi/hsr/hi3rd/zzz fans, if u sexualize minors (including fictonial ones),
 weird dandy world fans, pick me's, attention seekers
+
+-- ships
+
+albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
+or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
 do not copy and/or inspire from my skins on pt
 
