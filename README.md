@@ -10,7 +10,11 @@ call me meg or megan, 6teen, lesbian, autistic, 28/04
 
 im very introverted, but i love making new friends so feel free to talk to me!! i might be akward or quiet at first tho
 
-haikaveh/cynari/kazuscara/clorivia/pixelshark my loves <3 (ps. kazuscara, clorivia and pixelshark are so misunderstood omg
+cynari/haikaveh/kazuscara/clorivia/pixelshark my loves <3
+
+⚖️🍄/🌱🏛️/🍁☂️/🥐⚔️/👾🦈
+
+(ps. kazuscara, clorivia and pixelshark are so misunderstood omg)
 
 sign my atabook/strawpage !!
 
