@@ -26,7 +26,8 @@ weird dandy world fans, pick me's, attention seekers
 
 -- ships
 
-albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei, cylou & arlefuri/neuvifuri shippers
+if you ship a canonicaly/implied gay/lesbian character with the unprefered gender,
+albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei/amberlei, cylou 
 or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
 
 do not copy and/or inspire from my skins on pt
