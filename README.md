@@ -2,8 +2,7 @@
 "My god, my universe .."
 </p>
 
-[![Untitled17-20260329021408.png](https://i.postimg.cc/Gmgr4nDH/Untitled17-20260329021408.png)](https://postimg.cc/PCD07c2j)
- ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎  ‎‎‎ ‎ ‎‎[strawpage](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/etherealbina)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
+[![Untitled17-20260329021408.png](https://i.postimg.cc/Gmgr4nDH/Untitled17-20260329021408.png)](https://postimg.cc/PCD07c2j)‎ ‎‎<p align="center">[strawpage](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/etherealbina)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎[pronouns page](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [atabook](https://oceance.atabook.org)‎
 
 
 # about me :
