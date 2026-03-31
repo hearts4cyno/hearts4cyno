@@ -8,13 +8,11 @@
 # about me :
 call me meg or megan, 6teen, lesbian, autistic, 28/04
 
-im very introverted, but i love making new friends so feel free to talk to me!! i might be akward or quiet at first tho
-
 cynari/haikaveh/kazuscara/clorivia/pixelshark my loves <3
 
 ⚖️🍄/🌱🏛️/🍁☂️/🥐⚔️/👾🦈
 
-(ps. kazuscara, clorivia and pixelshark are so misunderstood omg)
+no.1 sumeru glazer btw
 
 sign my atabook/strawpage !!
 
@@ -31,8 +29,9 @@ weird dandy world fans, pick me's, attention seekers
 -- ships
 
 if you ship a canonicaly/implied gay/lesbian character with the unprefered gender,
-albedurin/scaradurin, dottoscara/dottocollei, kaeluc, beikazu, tighlei/amberlei, cylou 
-or just in general c0mships/pr0ships ect. otherwise im pretty okay with most ships including rarepairs
+c0mships/pr0ships
+
+albedurin/scaradurin, dottoscara/dottocollei, cylou/sethno/hailou and kaeluc strictly dni
 
 do not copy and/or inspire from my skins on pt
 
