@@ -19,7 +19,7 @@ sign my atabook/strawpage !!
 [![IMG-0299.jpg](https://i.postimg.cc/NM9MghF6/IMG-0299.jpg)](https://postimg.cc/N9tY4z1F)
 
 # dni :
-basic dni criteria , homophobia , transphobia, racists, proshippers, pdf files, rcta/dcta, anit-therians/furries etc
+basic dni criteria, homophobia, transphobia, racists, proshippers, pdf files, rcta/dcta, anit-therians/furries etc
 
 zoophiles, pro/com shippers, toxic shippers/yumeshippers, ppl who think mizuki akiyama is a boy
 
