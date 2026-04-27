@@ -6,7 +6,7 @@
 
 
 # about me :
-call me meg or megan, 6teen, lesbian, autistic, 28/04
+call me meg or megan, 7teen, lesbian, autistic, 28/04
 
 cynari/haikaveh/kazuscara/clorivia/pixelshark my loves <3
 
